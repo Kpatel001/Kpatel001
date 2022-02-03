@@ -1,4 +1,4 @@
-### Hi There 👋, My Name is Kpatel
+### Hi There, My Name is Kpatel.
 ####
 
 
