@@ -6,8 +6,20 @@
 
 
 
+**🎡MY SKILLS:**<br>
+✅HTML<br>
+✅CSS<br>
+✅Bootstarp<br>
+✅WordPress<br>
+✅JavaScript<br>
+✅jQuery<br>
 
 
+**🔰EXPERIENCE:**<br>
+☑️<br>
+☑️<br>
+☑️<br>
+☑️<br>
 
 
 **🛑HOW TO REACH ME:**<br>
