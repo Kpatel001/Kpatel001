@@ -1,7 +1,7 @@
 ![](https://freelinkedinbackgrounds.com/wp-content/uploads/2014/12/Nature-001.jpg)
 ![Profile views](https://gpvc.arturio.dev/Kpatel001) 
 
-### Hi There,<br>*** I'm Kpatel***<br>
+### Hi There, I'm Kpatel<br>
 **About Your or Your Company**<br>
 
 
