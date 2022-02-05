@@ -13,13 +13,15 @@
 ✅WordPress<br>
 ✅JavaScript<br>
 ✅jQuery<br>
+✅Java<br>
+✅Python<br>
 
 
 **🔰EXPERIENCE:**<br>
-☑️<br>
-☑️<br>
-☑️<br>
-☑️<br>
+☑️ <br>
+☑️ <br>
+☑️ <br>
+☑️ <br>
 
 
 **🛑HOW TO REACH ME:**<br>
